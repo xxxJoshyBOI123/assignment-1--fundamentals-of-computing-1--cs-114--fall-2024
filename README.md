@@ -69,7 +69,7 @@ Your new string is 0.0web15769
 
 ## ❖・Due・❖
 
-Wednesday, 18 September 2024, at 10:00 PM.
+Wednesday, 18 September 2024, at 10:00 PM. ***Note*: Per the syllabus, NO late submissions will be accepted**
 
 ---
 
